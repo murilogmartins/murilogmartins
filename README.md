@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on everything possible
 - 📫 How to reach me (do not massege me)
 - 😄 Pronouns: fuck"em
-- ⚡ Fun fact: anything
+- ⚡ Fun fact: none
 
 <!---
 murilogmartins/murilogmartins is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
