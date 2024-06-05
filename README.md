@@ -2,7 +2,7 @@
 - 👀 I’m interested in animes , games and books
 - 🌱 I’m currently learning game programming
 - 💞️ I’m looking to collaborate on everything possible
-- 📫 How to reach me (do not massege me)
+- 📫 How to reach me (don't disturb me)
 - 😄 Pronouns: fuck"em
 - ⚡ Fun fact: none
 
